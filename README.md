@@ -1,5 +1,5 @@
 ### Hi there, I'm Hilary 👋
-####😄 Pronouns: She/Her
+
 ---
 
 ### :woman_technologist: About Me : 
